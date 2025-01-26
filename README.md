@@ -1,5 +1,5 @@
 # Hello and Welcome 👋, I'm Mexi
-About Me:
+
 21 year old recent graduate with a Computer Associate degree in informatics management from Politeknik LP3I Bandung. Strong analytical skills and attention to detail, with a proven ability to thrive in fast-paced, collaborative environment. Ready to apply academic and practical knowledge to achieve success in a professional environment.
 
 
